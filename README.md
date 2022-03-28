@@ -1,6 +1,7 @@
 # discord-altyapi-pack
 Discord Mega altyapı paketi birbirinden değerli 20 altyapı!
 
+➤ Discord: https://discord.gg/r8pusA8VFE
 
 ➤https://ay.live/disfI4 MEGA ALTYAPI PACK!!
 
